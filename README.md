@@ -1,5 +1,11 @@
 ### Hi there 👋
 
+### Som piča uzená a nechávám se lognutej na cizích kompech LMA OMEGALUL
+
+![AltText](https://i.imgflip.com/5i8qof.gif)
+
+
+
 <!--
 **MarciPhan/MarciPhan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
